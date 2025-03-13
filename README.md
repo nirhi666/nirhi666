@@ -23,7 +23,8 @@ in logistics, automation, and cybersecurity.
 - Practical applications in **logistics, automation & productivity**  
 
 ## 📫 How to reach me ...  
-🔗 **LinkedIn:** [linkedin.com/in/oma-linkki](https://linkedin.com)  
+🔗 **LinkedIn:** [linkedin.com/in/oma-linkki] (  
+https://www.linkedin.com/in/marko-korpikoski-b0697a171/) 
 🐙 **GitHub Projects:** [github.com/nirhi666](https://github.com/nirhi666)  
 
 ## ⚡ Fun fact:  
